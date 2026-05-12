@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot custom Scripts, the #1 Script. Includes auto-upgrade and undetectable for unbeatable
 
 
 
